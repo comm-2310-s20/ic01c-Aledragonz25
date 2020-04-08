@@ -1,7 +1,7 @@
 # Introduction to Me
 
-1. My name is ____________________
+1. My name is Alejandra
 
-1. I preferred to be called ______________________
+1. I preferred to be called Ale
 
-1. I'm taking this class because _________________________
+1. I'm taking this class because I want to get a career out of digital media
