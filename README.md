@@ -1,6 +1,6 @@
 # Introduction to Me
 
-1. My name is Alejandra
+1. My name is Alejandra Gonzalez
 
 1. I preferred to be called Ale
 
