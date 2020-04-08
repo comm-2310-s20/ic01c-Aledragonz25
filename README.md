@@ -12,6 +12,4 @@
 1. My favorite tv show is **The Office**
 
 1. My favorite YouTube channel is **h3h3Productions**
-=======
 1. I'm taking this class because I want to get a career out of digital media
-
