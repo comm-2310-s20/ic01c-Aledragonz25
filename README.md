@@ -6,7 +6,7 @@
 
 1. My favorite videogame genre is *RPG*
 
-1. My favorite videogame is *The Witcher: Wild Hunt*
+1. My favorite videogame is *The Elder Scrolls V Skyrim*
 
 1. My favorite pokemon or videogame character is *Charizard*
 
